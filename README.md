@@ -11,7 +11,7 @@
 
 - 📫 How to reach me **muhammedtalhasaglam0@gmail.com**
 
-- 📄 Know about my experiences https://drive.google.com/file/d/1FqLxNupABdKOauosEYXihKY9HCYUQR6R/view?usp=sharing
+- 📄 Know about my experiences https://rb.gy/p0xqzo
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
