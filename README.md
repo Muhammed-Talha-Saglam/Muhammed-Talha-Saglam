@@ -7,9 +7,9 @@
 
 - 👯 I’m looking to collaborate on **mobile app projects.**
 
-- 📝 I regularly write articles on [https://medium.com/@bytecode20](https://medium.com/@bytecode20)
+- 📝 I sometimes write articles on [https://medium.com/@bytecode20](https://medium.com/@bytecode20)
 
-- 📫 How to reach me **muhammedtalhasaglam0@gmail.com**
+- 📫 Reach me via **muhammedtalhasaglam0@gmail.com**
 
 - 📄 Resume: https://tinyurl.com/36hcjhvz
 
