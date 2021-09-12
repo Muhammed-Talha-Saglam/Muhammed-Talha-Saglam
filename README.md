@@ -11,7 +11,7 @@
 
 - 📫 How to reach me **muhammedtalhasaglam0@gmail.com**
 
-- 📄 Know about my experiences [https://bounedutr-my.sharepoint.com/:b:/g/personal/talha_saglam_boun_edu_tr/EWyAbFA16RFInLl_qknDVFIBCqNrv1uX1IJ2vhlChQDccg?e=dZj1dh](https://bounedutr-my.sharepoint.com/:b:/g/personal/talha_saglam_boun_edu_tr/EWyAbFA16RFInLl_qknDVFIBCqNrv1uX1IJ2vhlChQDccg?e=dZj1dh)
+- 📄 Know about my experiences https://drive.google.com/file/d/1FqLxNupABdKOauosEYXihKY9HCYUQR6R/view?usp=sharing
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
