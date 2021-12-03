@@ -11,7 +11,7 @@
 
 - 📫 Reach me via **muhammedtalhasaglam0@gmail.com**
 
-- 📄 Resume: https://tinyurl.com/4kt9e9kh
+- 📄 Resume: https://tinyurl.com/2p86ewfz
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
