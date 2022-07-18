@@ -9,7 +9,7 @@
 
 - 📝 I sometimes write articles on [https://medium.com/@Byte_Code](https://medium.com/@Byte_Code)
 
-- 📫 Reach me via **bytecode34@gmail.com**
+- 📫 Reach me via **muhammedtalhasaglam0@gmail.com**
 
 - 📄 Resume: https://tinyurl.com/2kk73d5r
 
