@@ -11,7 +11,7 @@
 
 - 📫 Reach me via **bytecode34@gmail.com**
 
-- 📄 Resume: https://tinyurl.com/ykzwjya3
+- 📄 Resume: https://tinyurl.com/2kk73d5r
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
