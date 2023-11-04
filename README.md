@@ -13,4 +13,4 @@
 
 - 📄 Resume: https://drive.google.com/file/d/1jn8xtCWBvpFpgfyuYqmpqAe4XOsWsmGC/view?usp=sharing
 
-- <img align="center" src="https://raw.githubusercontent.com/rahuldkjain/github-profile-readme-generator/master/src/images/icons/Social/linked-in-alt.svg" alt="talhasaglam" height="16" width="16" /> Linkedin: https://linkedin.com/in/talhasaglam
+- <img align="center" src="https://raw.githubusercontent.com/rahuldkjain/github-profile-readme-generator/master/src/images/icons/Social/linked-in-alt.svg" alt="talhasaglam" height="30" width="30" /> Linkedin: https://linkedin.com/in/talhasaglam
