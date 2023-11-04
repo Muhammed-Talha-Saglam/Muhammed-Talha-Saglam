@@ -1,7 +1,5 @@
 <h1 align="center">Hi 👋, I'm Talha</h1>
 
-<p align="left"> <img src="https://komarev.com/ghpvc/?username=muhammed-talha-saglam&label=Profile%20views&color=0e75b6&style=flat" alt="muhammed-talha-saglam" /> </p>
-
 - 🌱 I’m currently learning **mobile related technologies.**
 
 - 👯 I’m looking to collaborate on **mobile app projects.**
