@@ -11,7 +11,7 @@
 
 - 📫 Reach me via **muhammedtalhasaglam0@gmail.com**
 
-- 📄 Resume: 
+- 📄 Resume: https://drive.google.com/file/d/1jn8xtCWBvpFpgfyuYqmpqAe4XOsWsmGC/view?usp=sharing
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
